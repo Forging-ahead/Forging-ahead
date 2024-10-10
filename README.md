@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Forging-ahead
-- 👀 I’m a student and there is a long and difficult road i need to go thyough.
+- 👀 I’m a student and there is a long and difficult road i need to go through.
  
 
 <!---
